@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-DUTS980206HNTRRR05
+DUTS980206HNTRRR05
